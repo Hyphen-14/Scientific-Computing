@@ -1,1 +1,0 @@
-Activity Session 1
